@@ -1,6 +1,6 @@
 Feliz Natal!
 
-São exatamente 18:40h da tarde.
+São exatamente 18:40h.
 
 Fiz esse site para todos que entrarem terem um Bom Feliz Natal e um Ótimo Ano Novo.
 
